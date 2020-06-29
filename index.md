@@ -1,6 +1,11 @@
 ❄️About my own characters❄️
 I want to show my characters to everyone!
-This is the story!    Matt's story part1.                            There was a land named Manemo land.
+This is the story!    
+
+Matt's story part1.
+------------------
+
+           There was a land named Manemo land.
 One day a manemo was born in the middle of the 1st war of Manemo land.
 But if a Manemo is born in the middle of the war, that Manemo will get the power to do the same thing as the winner of the war . Matt, that Manemo who was born in the middle of the war got the power to be evil, and a prophecy named after it had a very important part that was very good so all the Manemos in that land always would use it. Everyone would use it, but Matt.
 Because he had the power to become evil, he couldn't use it.
@@ -22,7 +27,8 @@ Because I have the power to be evil.”said Matt
 
 The end of Matt story part 1.
 
- 
+ Matt's story part 2.
+ -------------------
  
 Once his friends knew what happened the frinend said that “a Manemo was actually good but the power changed some things up”. But still who will solve the mystery? 
 Almost all Manemos were scared of Evilness and the battle.
